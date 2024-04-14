@@ -1,1 +1,1 @@
-education purposes website for myself
+My old porfolio
